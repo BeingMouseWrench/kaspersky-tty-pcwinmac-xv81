@@ -1,4 +1,4 @@
-# 
+# Gratuito Kaspersky Total Security plugins para Mac OS | Turbo Kaspersky Total Security plugins para PC Windows. Com acesso de emergência e compartilhamento seguro — otimizado para máximo desempenho em cada plataforma.
 
 
 
